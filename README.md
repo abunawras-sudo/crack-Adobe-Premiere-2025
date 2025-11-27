@@ -1,0 +1,1 @@
+# crack-Adobe-Premiere-2025
